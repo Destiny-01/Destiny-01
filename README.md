@@ -1,4 +1,5 @@
 ### Hi there 👋
+I am destiny Aigbe and you can shoot me a mail anytime at aigbedestinyic@gmail.com
 
 <!--
 **Destiny-01/Destiny-01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
